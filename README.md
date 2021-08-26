@@ -1,0 +1,3 @@
+- Hi, I’m @SkorpionGG
+- I’m interested in Gaming & Anime
+- I’m currently learning how to walk
